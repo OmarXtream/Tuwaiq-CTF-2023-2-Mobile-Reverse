@@ -2,7 +2,7 @@
 Tuwaiq-2023 Mobile Reverse Challenges with solutions
 
 ##  لا تنسى الفولو والنجمة هنا 🔥
-تويتر: https://twitter.com/omarxtream/status/1633558441334644736
+تويتر: https://twitter.com/omarxtream/status/1694040801699848533
 
 
 
